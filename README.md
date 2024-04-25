@@ -1,4 +1,6 @@
 
+![image](https://github.com/Dimentrius1137/Dimentrius1137/assets/124744143/325ac631-0807-4ca8-a1ae-2f8c62c8d076)
+
 <!--
 **Dimentrius1137/Dimentrius1137** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
